@@ -1,4 +1,4 @@
-<p align="center"> <img width="550" height="240" src="https://64.media.tumblr.com/394fc9e2c9ff645c35f6eb766f4d61af/f56aa131508ceb2b-a8/s540x810/245e174582145a0ffc5c5bd4ca09495aff96f610.pnj"> </p>
+<p align="center"> <img width="300" height="300" src="https://64.media.tumblr.com/fc7e618996f45a51fe76ca49883969ee/59b40b1466289929-3e/s540x810/7645b2441f62ebbb0f113b2bf9eb7ea832fdc392.pnj"> </p>
 <p align="center"> ︵ ⠀<img width="25" height="25" src="https://gifcity.carrd.co/assets/images/gallery303/e2cab88d.gif?v=e3c0bc0f">⠀ ︵  </p>
 <p align="center"> kieran he / they only </p> 
 <p align="center"> transmasc & mlm </p>
